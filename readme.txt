@@ -1,0 +1,3 @@
+The template is released under Creative Commons Attribution license (http://creativecommons.org/licenses/by-sa/3.0/), so are the images provided by Fotogrph.com (http://fotogrph.com/). It means you can use this template for personal or commercial purposes, modify it or redistribute as long as you keep the credit links in the footer.
+
+Under no circumstances can you use the templates for websites with illegal or immoral (even if legal) content. This includes, but is not limited to pornography, obscenity, homosexuality, abortion, violence, drugs, gambling.
